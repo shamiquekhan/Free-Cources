@@ -2,8 +2,8 @@
 
 > **Last Updated:** May 2026  
 > ✅ Only **truly free** courses with **free certificates** are listed here.  
-> ❌ No YouTube courses. No paid-certificate-only courses. No "audit only" courses.  
-> 📌 Tip: Bookmark this page and share it with your network!
+> No YouTube courses. No paid-certificate-only courses. No "audit only" courses.  
+> Tip: Bookmark this page and share it with your network!
 
 ---
 
